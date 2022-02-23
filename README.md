@@ -1,2 +1,0 @@
-# Mahendraa
-ig prem
